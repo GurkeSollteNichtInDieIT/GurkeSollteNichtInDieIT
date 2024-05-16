@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ... don't
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: At night it is colder than outside
 
 <!---
